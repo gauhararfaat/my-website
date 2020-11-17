@@ -40,7 +40,7 @@ Actions: It was indicated that the proposed calendar was suggestive in nature an
 will be modified as needed depending on the changing situation due to the outbreak of
 COVID-19. The members were requested to suggest alternative plans, if any, in writing
 on completing the second semester 2019-20. It was also noted that before asking the
-students to come to the campus an exhaustive plan must be prepared to ensure that
+students to come to the campus an exhaustive plan must be prepared to ensure that the
 social distancing norms are maintained and thorough medical check-up and testing for
 COVID-19 are conducted as per pandemic SoPs. It was decided to liberalize the course
 drop options for the students whose preparations got affected due to reasons related to
